@@ -1,0 +1,1 @@
+-Salut Je suis @Quincy3301.J'adore l'informatique ,je code depuis 3 ans en python.
